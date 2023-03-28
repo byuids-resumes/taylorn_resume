@@ -13,7 +13,7 @@ Finance, Analytics, Student at BYU-Idaho.
 
 ## Currently
 
-Pursuing a bachelors degree in Business Analytics with a minor in finance.
+Pursuing a bachelors degree in Business Analytics with a minor in Finance.
 
 Interning with Tyler Technologies in Yarmouth, Maine as a financial analyst.
 
